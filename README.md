@@ -14,7 +14,7 @@ Right now I'm in a early state of learning , but I'm open for any type of knowle
 * Python
 
 
-
+### A PIC OF ME PLAYIN SOME TECHNO:
 
 ![ME PLAYING SOME TECHNO](https://github.com/SergenF18/SergenF18/assets/162451307/4533eea3-c32d-4c98-9d17-8d2c5e8fb90b)
 
