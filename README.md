@@ -2,15 +2,20 @@
 
 #### My Name is Sergen!   
 
-I'm a 23Y Old Student for Web- and Softwaredevelopment.  
+I'm a 23Y Old Student for Web- and Softwaredevelopment.  :D
 
-Right now I'm in a early state of learning , but I'm open for any type of knowledge you can offer.  
+Right now I'm in a early state of learning , but I'm open for any type of knowledge you can offer.  ;D  
 
 ### I'm interested in :  
 
 * HTML
 * CSS
 * Javascript
+* Python
+
+
+
+
 
 
 
