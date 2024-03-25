@@ -16,6 +16,11 @@ Right now I'm in a early state of learning , but I'm open for any type of knowle
 
 
 
+![ME PLAYING SOME TECHNO](https://www.instagram.com/p/C2ZjzzHs2d8/?img_index=1)
+
+
+
+
 
 
 
