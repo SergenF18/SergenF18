@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+***My Name is Sergen! 
+
+I'm a 23Y Old Student for Web- and Softwaredevelopment.*** 
+
+
+
 <!--
 **SergenF18/SergenF18** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
